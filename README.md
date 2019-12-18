@@ -1,2 +1,1 @@
-# dewikece
-newbieeee
+dewiana
